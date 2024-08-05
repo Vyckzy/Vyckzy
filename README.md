@@ -1,16 +1,13 @@
-## Hi there 👋
+## ✨👾 Welcome to my little world 👾✨
 
-<!--
-**Vyckzy/Vyckzy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+─── ･ ｡ﾟ☆: *.☽ .* :☆. ───
 
-Here are some ideas to get you started:
+Olá, meu Flavya
+- Sou estudante da ROC (Rubens De Oliveira Camargo)
+- Estou desenvolvendo o curso do alura, nas aulas de robotica com a professora Gênera.
+- Sou uma fã nata de rpg de mesa, principalmente, Ordem Paranormal.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ### PARA ENTRAR EM CONTATO COMIGO, ACESSE 📲
+0000110931695sp@al.educacao.sp.gov.br ou @vyckzy._
+
+![](https://media.tenor.com/kBiF4dihvJwAAAAi/dumativa-pixelart.gif)
