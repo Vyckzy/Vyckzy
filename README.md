@@ -2,9 +2,9 @@
 
 ─── ･ ｡ﾟ☆: *.☽ .* :☆. ───
 
-Olá, meu Flavya
+Olá, meu Flavya R. A. da Silva
 - Sou estudante da ROC (Rubens De Oliveira Camargo)
-- Estou desenvolvendo o curso do alura, nas aulas de robotica com a professora Gênera.
+- Estou desenvolvendo o curso do alura, nas aulas de robotica com a professora Genera.
 - Sou uma fã nata de rpg de mesa, principalmente, Ordem Paranormal.
 
   ### PARA ENTRAR EM CONTATO COMIGO, ACESSE 📲
